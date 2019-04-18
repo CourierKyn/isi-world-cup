@@ -1,1 +1,0 @@
-# ISI World Cup
